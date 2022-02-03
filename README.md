@@ -1,0 +1,1 @@
+# 2022028_uas_Sistem_Operasi
